@@ -1,2 +1,2 @@
-# Lore-Elden-Ring
+# Lore Elden Ring ⚔️
 Projeto DIO Git/GitHub
